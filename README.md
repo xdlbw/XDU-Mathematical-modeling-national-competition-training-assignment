@@ -32,6 +32,6 @@
 
 ## 小结
 
-国赛已报名，希望取得好成绩，加油加油
+2022国赛C题省二，真是太逊了
 
 再次感谢我的两位队友[**@AL**](https://github.com/LichtYy)、[**@Taylorful**](https://github.com/Taylorful)
